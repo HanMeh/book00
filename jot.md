@@ -12,3 +12,4 @@ i didn't made it through the ancient/traditional pathway/i diverged or rebeled s
 my mother, sisters and brother-relentlessly (accepted that i am different somehow, probably its a homage to them that i treasure contrasts and feel abrahamic cultures should be preserved/agnostic)
 create my own microcosm (i am kind of not good in other's spaces)
 therefore i can't be confident i am construing it others would
+my military bg-thus my intrigue in smart/deadly combat technologies (i feel the defeat/the fact that we were displaced from our positions)
