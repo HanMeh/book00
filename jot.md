@@ -7,3 +7,5 @@ formed - we were displaced by the et forces and i still harbour grudges | i reca
 without:revealing what's
 why: athletes retire and there are no sports events \(olympics of/for the 40 or 80 years old \)
 i wonder/haunts me 1.what the forefathers/scientific and mathematics ancestors/minds who/giants/titans...who conceived/granted the technologies/blank canvas we so lavishly (like parents spoil the children) enjoy/thrive on...would have accomplished in the contemporary scene (that's over resourced/ample/deluge), which we have not subdued/still in the spell cast upon 2.what the next generation would condemn us for our foresight/genius
+i didn't made it through the ancient/traditional pathway/i diverged or rebeled somewhere/lost on the way
+my mother, sisters and brother-relentlessly (accepted that i am different somehow, probably its a homage to them that i treasure contrasts and feel abrahamic cultures should be preserved/agnostic)
